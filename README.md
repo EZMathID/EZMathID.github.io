@@ -1,1 +1,0 @@
-# EZMathID.github.io
